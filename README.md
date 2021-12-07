@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @gundhi
+- 👀 I’m interested in the chemistry between persona and machine
+- 🌱 I’m currently persuing the studies of electrical engineering and cognitive science
+- 💞️ I’m looking to collaborate on elaborations on your perception of machine interaction and its presence
+- 📫 How to reach me im working on that...
